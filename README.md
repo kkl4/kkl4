@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @kkl4 (Krzysztof Lechowski)
-- 📫 How to reach me via archmedian.com or toptal.com
+- 📫 Reach me via archmedian.com or toptal.com
